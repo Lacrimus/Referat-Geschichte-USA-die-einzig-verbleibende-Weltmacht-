@@ -6,6 +6,7 @@ USA – die einzig verbleibende Weltmacht?
 - George Senior Ära
 - Definition einer Supermacht nach Brzezinski
 - Befreiung Kuwaits
+
 ### Paul:
 - Bill Clinton Ära
 - Balkanintervention
@@ -13,7 +14,9 @@ USA – die einzig verbleibende Weltmacht?
 ### Jan:
 - Irakkrieg mit Großbritannien (2002) (Moralische Grundlagen der Interventionspolitk)
 - Kampf gegen internationalen Terrorismus
-- Machtverschiebung (kurz!)
+- Machtverschiebung + Neue Wirtschaftspolitik (Bonus-Material)
+- Gestaltung Präsantation
+- Gestaltung Handout
 
 ### Marius:
 - Obama Ära
