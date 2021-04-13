@@ -23,5 +23,5 @@ USA – die einzig verbleibende Weltmacht?
 - Bildanalyse Irakkrieg
 (- Weiterführung der Interventionspolitik)
 
-### Alle (abwechslend)
+### Alle (abwechselnd)
 - Quellenanalyse 9/11 Reaktion Kritik
