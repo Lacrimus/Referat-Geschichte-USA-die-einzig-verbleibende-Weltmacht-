@@ -1,3 +1,10 @@
+# Links
+
+[Präsantation .odp](https://github.com/Lacrimus/Referat-Geschichte-USA-die-einzig-verbleibende-Weltmacht-/blob/main/USA-die-einzig-verbleibende-Weltmacht.odp?raw=true)
+[Präsantation .pdf](https://github.com/Lacrimus/Referat-Geschichte-USA-die-einzig-verbleibende-Weltmacht-/blob/main/USA-die-einzig-verbleibende-Weltmacht.pdf?raw=true)
+[Handout .odp](https://github.com/Lacrimus/Referat-Geschichte-USA-die-einzig-verbleibende-Weltmacht-/blob/main/Handout-USA-Weltmacht.odp)
+[Handout .pdf](https://github.com/Lacrimus/Referat-Geschichte-USA-die-einzig-verbleibende-Weltmacht-/blob/main/Handout-USA-Weltmacht.pdf)
+
 # Referat-Geschichte-USA-die-einzig-verbleibende-Weltmacht-
 USA – die einzig verbleibende Weltmacht?
 
